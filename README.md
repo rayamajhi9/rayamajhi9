@@ -163,6 +163,9 @@ https://medium.com/@rayamajhi.ajay
 **Email:**
 [rayamajhi.ajay@gmail.com](mailto:rayamajhi.ajay@gmail.com)
 
+**WebSite:**
+https://rayamajhi9.github.io/
+
 ---
 
 ### 💡 My Goal
